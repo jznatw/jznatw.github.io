@@ -1,2 +1,0 @@
-# jznatw.github.io
-a
